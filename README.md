@@ -1,0 +1,2 @@
+# gawibawibo
+pedra, papel, tesouraaaa!
